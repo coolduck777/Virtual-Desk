@@ -11,7 +11,8 @@ https://www.soundjay.com/page-flip-sounds-2.html
 
   
 ## Developer  
-###Coolduck777 https://twitter.com/Cool_Duck_777
+### Coolduck777  
+https://twitter.com/Cool_Duck_777  （日本語対応可）
 
 
 
