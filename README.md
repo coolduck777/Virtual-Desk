@@ -9,6 +9,11 @@ https://appiconmaker.co
 ### Sound  
 https://www.soundjay.com/page-flip-sounds-2.html  
 
+  
+## Developer  
+###Coolduck777 https://twitter.com/Cool_Duck_777
+
+
 
 
 
